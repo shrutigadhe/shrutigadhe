@@ -23,4 +23,4 @@ Aspiring Software Developer focused on **backend development**. I enjoy building
 - Looking for a Software Engineer internship
 
 ## 📫 Connect
-[LinkedIn](www.linkedin.com/in/shruti-gadhe-49b111288)
+[LinkedIn](https://www.linkedin.com/in/shruti-gadhe-49b111288/?isSelfProfile=true)
